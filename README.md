@@ -1,1 +1,1 @@
-# MI-COLEGIO-LICEO-ORURO
+# Registro
